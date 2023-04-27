@@ -1,0 +1,1 @@
+# Esta es una pagina con fines de servicios sexuales entre personajes, puedes contratar el servicio pero no podrás contar con ellos fisicamente, sino que, tan solo pagarás por fantasear en un ilusorio caso ficticio.
